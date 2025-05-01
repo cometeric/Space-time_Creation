@@ -1,1 +1,1 @@
-This theory suggests that perhaps space and time can change because of Theory of Everything String Theory https://github.com/cometeric/Theory_of_Everything_String_Theory it willbe explained in this theory. 
+This theory suggests that perhaps space and time can change because of Theory of Everything String Theory https://github.com/cometeric/Theory_of_Everything_String_Theory it will be explained in this theory. 
